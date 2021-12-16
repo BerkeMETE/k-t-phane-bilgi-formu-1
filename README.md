@@ -1,0 +1,1 @@
+# k-t-phane-bilgi-formu-1
